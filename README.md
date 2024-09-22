@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @1cyber-cache
 - 👀 I’m interested in web development 
 - 🌱 I’m currently learning web development 
-- 💞️ I’m looking to collaborate on different projy
+- 💞️ I’m looking to collaborate on different projects 
 - 📫 How to reach me: You can reach me via my email address (hannahsossa@gmail.com)
 - 😄 Pronouns: He, Him.
 - ⚡ Fun fact: I love food😁😁😁
